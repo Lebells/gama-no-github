@@ -1,0 +1,1 @@
+Estou gostando das aulas, porém como nunca havia estudado estou tendo muita dificuldade e tirando várias dúvidas em outros tutoriais.
